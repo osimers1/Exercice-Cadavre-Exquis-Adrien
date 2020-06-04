@@ -11,4 +11,6 @@ Je me suis dirigé vert la porte
 "Comment vas-tu ma jolie?" Lui dis-je.  
 "Laisse moi tranquille, je ne suis pas intéressée" Lui dit-elle.  
 Je me demandais alors comment j'allais bien pouvoir faire pour qu'elle s'intéresse à moi.  
-
+Donc j'allais dans ma cuisine en vitesse regarda se que j'avais c'est la que 
+je me suis rapellé que j'avais encore un peu de laitue dans mon frigo,
+Je retournas a la porte en courant pour lui tendre la laitue et elle me repondit.
