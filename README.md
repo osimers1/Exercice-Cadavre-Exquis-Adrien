@@ -8,3 +8,7 @@ J'ai alors pris ma plus belle voix et je l'ai acoster
 J'etais en train de dormir sur mon bureaux lorsque l'on frappa a la porte
 le bruit etait tellement fort que cela m'as fais sursauter.
 Je me suis dirigé vert la porte
+"Comment vas-tu ma jolie?" Lui dis-je.  
+"Laisse moi tranquille, je ne suis pas intéressée" Lui dit-elle.  
+Je me demandais alors comment j'allais bien pouvoir faire pour qu'elle s'intéresse à moi.  
+
