@@ -14,3 +14,6 @@ Je me demandais alors comment j'allais bien pouvoir faire pour qu'elle s'intére
 Donc j'allais dans ma cuisine en vitesse regarda se que j'avais c'est la que 
 je me suis rapellé que j'avais encore un peu de laitue dans mon frigo,
 Je retournas a la porte en courant pour lui tendre la laitue et elle me repondit.
+Mais enfin, juste parce que je suis une lapine tu penses que j'aime la laitue?  
+Moi mon truc c'est plutôt le steak frites...  
+Eh oui, les lapins carnivores, ca existe!
