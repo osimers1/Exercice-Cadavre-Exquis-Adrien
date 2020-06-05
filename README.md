@@ -17,3 +17,4 @@ Je retournas a la porte en courant pour lui tendre la laitue et elle me repondit
 Mais enfin, juste parce que je suis une lapine tu penses que j'aime la laitue?  
 Moi mon truc c'est plutôt le steak frites...  
 Eh oui, les lapins carnivores, ca existe!
+A défaut de steak, je vis mon voisin entrer de grignoter sa pelouse... un peu de chloroforme, je l'attrape, je le zigouille, je le découpe et voilà un bon morceau de lapin bien tendre ... il ne restait plus qu'à éplucher les pommes de terre pour faire les frites, pendant ce temps, elle alla se faire une petite beauté dans la salle de bain et mettre du vernis sur ses petites papattes.
