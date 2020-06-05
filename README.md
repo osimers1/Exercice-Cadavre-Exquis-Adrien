@@ -16,3 +16,5 @@ il ne restait plus qu'à éplucher les pommes de terre pour faire les frites, pe
 mais malheureusement je me rendis compte que je n'avait plus de pommes de terre.<br/>
 c'est alors qu'une idée de génie me vint, et pourquoi pas remplacer les pommes de terre par des patates douces.<br/>
 et oui les frites de patates douces c'était décidément une bonne idée me dis-je, mais revenons un instant sur notre lapine, qui, ne se doute de rien...<br/>
+Pendant que je cuisinais, notre belle lapine, maintenant toute pouponnée, chantonnait un verre de vin rouge à la main. Je me réjouissais déjà de la suite.
+Et là mon téléphonne sonna.  Quand je vis le nom de l'appelant, j'étais obligé de décrocher même si je savais que cela allait innevitablement interrompre cette soirée.
