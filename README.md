@@ -1,4 +1,5 @@
-<h1>le lapin blanc </h1> j'etais en train de dormir sur mon bureau lorsque l'on frappa à la porte le bruit était tellement fort que cela m'a faits sursauter. Je me dirigeai vert la porte et là j'ai vu une lapine ultra jolie !
+<h1>le lapin blanc </h1> 
+j'etais en train de dormir sur mon bureau lorsque l'on frappa à la porte le bruit était tellement fort que cela m'a faits sursauter.<br/> Je me dirigeai vert la porte et là j'ai vu une lapine ultra jolie !
 J'ai alors courus vers elle pour lui demander son numéro de téléphone.
 J'ai alors pris ma plus belle voix et je l'ai accosté "comment vas-tu ma jolie ?" Lui dis-je.
 "Laisse-moi tranquille, je ne suis pas intéressée" Lui dit-elle.
