@@ -1,3 +1,14 @@
+### explanation of the project :
+
+
+this is group work. we each had to write to a file in turn and then push to create a story.
+
+### what i have learn :
+
+grâce a cela j'ai appris a gerer les different commit et ses conflit
+
+
+### the story :
 <h1>le lapin blanc </h1>
 j'etais en train de dormir sur mon bureau lorsque l'on frappa à la porte le bruit était tellement fort que cela m'a faits sursauter.<br/>
 Je me dirigeai vert la porte et là j'ai vu une lapine ultra jolie !<br/>
