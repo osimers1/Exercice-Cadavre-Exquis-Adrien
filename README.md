@@ -1,11 +1,10 @@
 <h1>explanation of the project :</h1>
 
-
 this is group work. we each had to write to a file in turn and then push to create a story.
 
 <h1>what i have learn :</h1>
 
-thanks to this I learned to manage the different commits and their conflicts
+with this excercise I learned to manage the different commits and their conflicts
 
 <h1> the story :</h1>
 <h1>le lapin blanc </h1>
