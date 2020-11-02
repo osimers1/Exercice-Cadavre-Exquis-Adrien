@@ -1,14 +1,13 @@
-### explanation of the project :
+<h1>explanation of the project :</h1>
 
 
 this is group work. we each had to write to a file in turn and then push to create a story.
 
-### what i have learn :
+<h1>what i have learn :</h1>
 
-grâce a cela j'ai appris a gerer les different commit et ses conflit
+thanks to this I learned to manage the different commits and their conflicts
 
-
-### the story :
+<h1> the story :</h1>
 <h1>le lapin blanc </h1>
 j'etais en train de dormir sur mon bureau lorsque l'on frappa à la porte le bruit était tellement fort que cela m'a faits sursauter.<br/>
 Je me dirigeai vert la porte et là j'ai vu une lapine ultra jolie !<br/>
